@@ -1,7 +1,8 @@
 SEO COMPETITIVE ANALYSIS
 ========================
 
-#SEO Competitive Analysis 
+SEO Competitive Analysis
+------------------------
 
 This is a powerful research strategy in helping you to rank higher, get more traffic, and earn more conversions. Its magic happens by uncovering SEO opportunities you may not have seen otherwise.
 
